@@ -1,7 +1,6 @@
 - 👋 sa as bne @Mnour3593
 - 👀 I’m interested in shi idk probably metal and video games
 - 🌱 I’m currently learning C
-- 💞️ I’m looking to collaborate on "I WALK A LONELY ROAD"
 - 📫 How to reach me; you'll find me by my username on most platforms
 - ⚡ Fun fact: I am a loser
 
