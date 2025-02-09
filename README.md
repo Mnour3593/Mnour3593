@@ -1,6 +1,6 @@
-- 👋 sa as bne @Mnour3593
+- 👋 Hi I'm @Mnour3593 aka Muhammet Nur
 - 👀 I’m interested in metal music and video games
-- 🌱 I’m currently learning C
+- 🌱 I’m currently learning C (Entering Java territories soon)
 - 📫 How to reach me; you'll find me by my username on most platforms
 - ⚡ Fun fact: I can name almost every Evanescence song.
 <!---
